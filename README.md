@@ -1,0 +1,4 @@
+- 👋🏻 Hi, I’m @k-chase
+- 😄 Pronouns: he/him
+- 🌱 I’m currently in school to get my degree in computer science
+- ⚡ Fun fact: I have three cats and a ball python! I also love to read and write.
